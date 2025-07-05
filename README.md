@@ -20,4 +20,4 @@
 
 ，利于快速抓取与收录。如果你正在寻找一个“干净、快速、丰富”的AV观影平台，本站将是你的首选。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/nina4562/57566 ）</span>
